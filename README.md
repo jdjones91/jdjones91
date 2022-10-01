@@ -3,4 +3,3 @@
 - 🌱 I’m currently learning: How to be a Data Scientist! I will complete my Bootcamp in December, 2022
 - 💞️ I’m looking to collaborate on: Anything, Everything. Amy excuse to share knowledge is good enough for me.
 - 📫 How to reach me: jdjones1866@icloud.com,  or at LinkedIn: https://www.linkedin.com/in/james-jones-b158b8246/
-- 
